@@ -1,3 +1,5 @@
-Meu primeiro sistema no git!
+estamos indo!
 
-vamos!
+mudamos! 
+
+vamosss!
